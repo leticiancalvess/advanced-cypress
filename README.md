@@ -2,7 +2,6 @@
 
 👋 Seja bem vindo(a)!
 
-É muito bom tê-lo(a) aqui. Tenho certeza que você vai adorar este curso. ❤️
 
 ## This course is designed to help you acquire more knowledge in
 
